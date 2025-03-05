@@ -1,1 +1,1 @@
-# LifeBites
+# EcoLife
